@@ -15,7 +15,6 @@ Adoro correr a noite para relaxar, e quando sobra um tempo, me divirto com jogos
 
 **Contato**
 Sita-se à vontade para me perguntar algo via e-mail: misterregisslv@gmail.com
-### Hi there 👋
 
 <!--
 **ander-mist/ander-mist** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
